@@ -1,0 +1,1 @@
+fome kimki qazo bolsa, uyga kelgan birodar senga nima deb aytaman bilsanmi
